@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @DevanaskhanOps
 - 👀 I’m interested in ...jhh
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ...fvdvdf
 - 💞️ I’m looking to collaborate on .....fsdfsdfsdfsdf
 - 📫 How to reach me ...... hello worlddd
 <!---nm
